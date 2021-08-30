@@ -2,7 +2,7 @@ Hello,
 
 Here you will find various projects that I have been working on. 
 
-Follow me on my YouTube channel 🎥 https://bit.ly/mentecripto where you will find me sharing ideas on blockchain, crypto, investing and mentality
+Follow me on my YouTube channel 🎥 https://bit.ly/mentecripto where you will find me sharing ideas on blockchain, crypto, investing and mentality.
 
 Let's build some cool stuff.
 
